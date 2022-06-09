@@ -1,1 +1,0 @@
-# RecuSegundo2022
